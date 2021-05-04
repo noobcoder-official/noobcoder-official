@@ -2,4 +2,4 @@
 - 👀 I’m interested in the common stuff (memes, music and that experience leaves a lasting structural trace in cortical circuits)
 - 🌱 I’m currently learning english and C# :D
 - 💞️ I’m looking to collaborate on Bannerlord Mods and Xev Bellringer
-- 📫 How to reach me via dove or e-mail
+- 📫 You can reach me via carrier pigeon or e-mail (but i prefer the carrier pigeon)

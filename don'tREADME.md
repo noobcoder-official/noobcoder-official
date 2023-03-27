@@ -1,5 +1,7 @@
 - 👋 Hi, I’m @noobcoder-official aka sauH3rcR0wd
 - 👀 I’m interested in the common stuff (memes, music and that experience leaves a lasting structural trace in cortical circuits)
+- //edit 27.03.23: whoah nelly that's cringe duh 
 - 🌱 I’m currently learning english and C# :D
-- 💞️ I’m looking to collaborate on Bannerlord Mods and Xev Bellringer
+- //edit 27.03.23: and also how to do proper investment fraud
+- 💞️ I’m looking to collaborate on Bannerlord/Rimworld Mods and Xev Bellringer
 - 📫 You can reach me via carrier pigeon or e-mail (but i prefer the carrier pigeon)
